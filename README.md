@@ -1,3 +1,3 @@
 # Place a Face
-Created by Jasson Scott Heise
-Owned by Elon Musk
+Created by Jasson Heise
+Owned by Jason Heise heisejason-png Giters
